@@ -5,6 +5,8 @@ Poem Moves the Pen: Haiku of a Nondual Nature
 penned with Jess Cummins
 <br>
 @jesscxc
+<br>
+[NoLiesPlease.com](http://noliesplease.com/)
 
 
 [introduction]
@@ -68,7 +70,39 @@ to my best friend, my spiritual partner
 
 [nonduality]
 <br>
-...
+you are quantum soup<br>
+let this be known to all things:<br>
+nature is seeing
+
+the time will come,<br>
+when the future will be past,<br>
+so cherish the Now
+
+there are always ways,<br>
+to make yourself a success<br>
+you must lose your self
+
+the identity,<br>
+of a truly great spirit,<br>
+is in letting go
+
+
+don't fear surrender<br>
+it is harder to accept,<br>
+yet it brings freedom
+
+there can be a way,<br>
+to go back and change the past<br>
+see it all as One
+
+the self does believe,<br>
+that it is part of the whole.<br>
+no, self is process.
+
+ego disappears,<br>
+separation does not last,<br>
+when noticing Now
+
 
 [fun]
 <br>
