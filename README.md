@@ -151,14 +151,67 @@ magic is new tech
 
 [ungovern]
 <br>
-...
 
+...
 
 <hr>
 
 [takeaways]
 <br>
+respect is earned<br>
+don't demand it from others<br>
+make yourself better
+
+small deeds make great acts<br>
+so start now: one foot in front<br>
+keep on keeping on
+
+nothing is easy<br>
+however, nothing is hard<br>
+perspective is all
+
+i don't know myself<br>
+i keep trying to find out<br>
+i create to learn
+
+<hr>
+
+use an hour a day,<br>
+on where you are and will go<br>
+this is for success
+
+take the longer view<br>
+improve the distant future<br>
+effort gains purpose
+
+a weed, once whacked,<br>
+is it truly still a weed?<br>
+perhaps in name only
+
+the animal sees,<br>
+but does not look deep enough<br>
+there is more hidden
+
+<hr>
+
+truly, you are aware,<br>
+yet you can always be more<br>
+do not forget this
+
+be an open book<br>
+withholding ideas binds you<br>
+reveal to be free
+
+to craft is to grow<br>
+you discover when you make<br>
+simply start writing
+
+when the cup is filled<br>
+there is no need for more hope<br>
+yet hope is still there
+
 ...
 
-[fin]
+<hr>
 
+[fin]
