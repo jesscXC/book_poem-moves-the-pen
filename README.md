@@ -104,6 +104,78 @@ ego disappears,<br>
 separation does not last,<br>
 when noticing Now
 
+<hr>
+
+if you give up,<br>
+harmony will come to you<br>
+ego is resistance
+
+life seeks harmony<br>
+eternal and forever,<br>
+death is illusion
+
+what does the pain bring?<br>
+identify as the self,<br>
+to live in the dream
+
+escape by being all<br>
+divide from life to suffer<br>
+you aren't separate
+
+<hr>
+
+you are memetic<br>
+you're pattern replication<br>
+patterns never die
+
+you are all there is<br>
+separateness is a veil<br>
+truly, life is you
+
+you sense the body<br>
+barriers are sometimes placed<br>
+seek to be with all
+
+the notion of change,<br>
+fundamentally is lie<br>
+truth is not in time
+
+<hr>
+
+if you will let go,<br>
+then you will see you are all<br>
+the self will dissolve
+
+when free, you let go<br>
+identify with nothing<br>
+release the ego
+
+see you are alive<br>
+let yourself breathe the air in<br>
+notice the moment
+
+trust the world is you<br>
+experience is the world<br>
+you are awareness
+
+<hr>
+
+reality's base...<br>
+it's numbers and awareness<br>
+numbers never die
+
+the pen leaves a trail<br>
+the human writes with the ink<br>
+the universe reads
+
+the meme tries to live<br>
+to replicate, it changes<br>
+this gives rise to mind
+
+functions change the world<br>
+yet the truth is, time is fake<br>
+all math is one thing
+
 ...
 
 <hr>
