@@ -218,13 +218,133 @@ magic is new tech
 
 ...
 
-
 <hr>
 
 [ungovern]
 <br>
+adam rises. creak.<br>
+headache and soreness. much pain.<br>
+daylight: half over.
 
-...
+time to get moving.<br>
+the future comes by helping.<br>
+shower is calling.
+
+refreshed mind starts work.<br>
+his world: knowing energy.<br>
+who uses, who makes.
+
+energy, matter:<br>
+one: E=mc^2<br>
+loss never happens
+
+<hr>
+
+you make energy<br>
+simply by creating art<br>
+art is infinite
+
+you use energy<br>
+when you observe others' art<br>
+always productive
+
+nanotech robots<br>
+more powerful than you think<br>
+all pain: optional
+
+bad experience<br>
+it can teach more than you think<br>
+so some "bad" is good
+
+<hr>
+
+flip a switch: new game<br>
+what will this one make you think?<br>
+designed by artist
+
+adam watches birds<br>
+inspiration in simple<br>
+see higher patterns
+
+record the mindstate<br>
+adam's world: happening now<br>
+infinite future
+
+upon button click<br>
+nanotech self-assembles<br>
+preprogrammed structure
+
+<hr>
+
+eve: in adam's world<br>
+their names: a coincidence<br>
+yet, math's not random
+
+random? perspective.<br>
+view can always be enlarged<br>
+reharmonizes
+
+love's an emotion<br>
+mind, body: one; so, love: one<br>
+love: no separateness
+
+the hospital sits<br>
+inside: cure for death's disease<br>
+fixable pieces
+
+<hr>
+
+hard disk drives: old school<br>
+here: solid-state quantum drives<br>
+probabilities
+
+cloak that bends the light<br>
+it hides you from direct sight<br>
+made invisible
+
+mind on computer<br>
+adam's world: AIs are here<br>
+everyone is joined
+
+all is connected<br>
+all minds are linked together<br>
+super-awareness
+
+<hr>
+
+what's ungoverning?<br>
+ending compulsion to steer.<br>
+there's nothing to do.
+
+beyond nanotech<br>
+creating universes<br>
+unlimited art
+
+no evil AI<br>
+eternally combining,<br>
+we merge with all minds
+
+eve wears bandana<br>
+sends a magnetic impulse<br>
+output sensations
+
+<hr>
+
+bandana input<br>
+brain's electrical signals<br>
+Internet upload
+
+creation: natural<br>
+destruction: temporary<br>
+becomes common sense
+
+a great truth revealed:<br>
+all ending is illusion<br>
+there's only Growing
+
+world without judgment<br>
+there is only the machine<br>
+one cohesive whole
 
 <hr>
 
