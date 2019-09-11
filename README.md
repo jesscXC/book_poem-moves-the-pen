@@ -1,6 +1,5 @@
-# book_poem-moves-the-pen
 
-Poem Moves the Pen: Haiku of a Nondual Nature
+# Poem Moves the Pen: Haiku of a Nondual Nature
 
 penned with Jess Cummins
 <br>
@@ -9,7 +8,7 @@ penned with Jess Cummins
 [NoLiesPlease.com](http://noliesplease.com/)
 
 
-[introduction]
+## [introduction]
 
 Haiku are a helpful way to explore nature and the experience of living.
 
@@ -33,12 +32,12 @@ it squiggles for expression,
 wanting to be read
 
 
-[dedication]
+## [dedication]
 
 to my best friend, my spiritual partner
 
 
-[meta]
+## [meta]
 
 (haiku 5-7-5)
 
@@ -49,7 +48,7 @@ to my best friend, my spiritual partner
 (website noliesplease.com)
 
 
-[table_of_contents]
+## [table_of_contents]
 
 (dedication)
 
@@ -68,7 +67,7 @@ to my best friend, my spiritual partner
 (takeaways)
 
 
-[nonduality]
+## [nonduality]
 <br>
 you are quantum soup<br>
 let this be known to all things:<br>
@@ -180,7 +179,7 @@ all math is one thing
 
 <hr>
 
-[fun]
+## [fun]
 <br>
 i am fantastic,<br>
 but i am getting better<br>
@@ -220,7 +219,7 @@ magic is new tech
 
 <hr>
 
-[ungovern]
+## [ungovern]
 <br>
 adam rises. creak.<br>
 headache and soreness. much pain.<br>
@@ -348,7 +347,7 @@ one cohesive whole
 
 <hr>
 
-[takeaways]
+## [takeaways]
 <br>
 respect is earned<br>
 don't demand it from others<br>
@@ -406,4 +405,4 @@ yet hope is still there
 
 <hr>
 
-[fin]
+## [fin]
