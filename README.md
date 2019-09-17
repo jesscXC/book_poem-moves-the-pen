@@ -6,7 +6,7 @@ penned with Jess Cummins
 @jesscxc
 <br>
 [NoLiesPlease.com](http://noliesplease.com/)
-
+ty19.9.17.19.58.33pzm4d2s 
 
 ## [introduction]
 
@@ -582,60 +582,274 @@ there is only the machine
 one cohesive whole
 
 ## [takeaways]
-<br>
-respect is earned<br>
-don't demand it from others<br>
+
+respect is earned
+don't demand it from others
 make yourself better
 
-small deeds make great acts<br>
-so start now: one foot in front<br>
+small deeds make great acts
+so start now: one foot in front
 keep on keeping on
 
-nothing is easy<br>
-however, nothing is hard<br>
+nothing is easy
+however, nothing is hard
 perspective is all
 
-i don't know myself<br>
-i keep trying to find out<br>
+i don't know myself
+i keep trying to find out
 i create to learn
 
-<hr>
-
-use an hour a day,<br>
-on where you are and will go<br>
+use an hour a day,
+on where you are and will go
 this is for success
 
-take the longer view<br>
-improve the distant future<br>
+take the longer view
+improve the distant future
 effort gains purpose
 
-a weed, once whacked,<br>
-is it truly still a weed?<br>
+a weed, once whacked,
+is it truly still a weed?
 perhaps in name only
 
-the animal sees,<br>
-but does not look deep enough<br>
+the animal sees,
+but does not look deep enough
 there is more hidden
 
-<hr>
-
-truly, you are aware,<br>
-yet you can always be more<br>
+truly, you are aware,
+yet you can always be more
 do not forget this
 
-be an open book<br>
-withholding ideas binds you<br>
+be an open book
+withholding ideas binds you
 reveal to be free
 
-to craft is to grow<br>
-you discover when you make<br>
+to craft is to grow
+you discover when you make
 simply start writing
 
-when the cup is filled<br>
-there is no need for more hope<br>
+when the cup is filled
+there is no need for more hope
 yet hope is still there
 
-...
+desire, craving,
+it is animalistic
+try to rise above
+
+four-dimensional:
+it can be intuitive.
+don't believe the doubt.
+
+you look at the screen.
+do you see a flat surface?
+no, you see deeper.
+
+the genius know depth;
+they know knowledge is endless.
+so they are dumb, too.
+
+most apes, after money,
+see not the point is wisdom.
+wisdom makes you last.
+
+wheels are invented
+do not think of them as one
+cars, and planes, use them
+
+creation bears fruit
+destruction is limited
+cooperate: win
+
+if there is no wind,
+and if there is no sunlight,
+still, life can prosper.
+
+if you hold too tight,
+then it will escape your grasp.
+this math is proven
+
+wisdom: limitless
+yet also are fear and doubt
+all can be useful
+
+there's a trick to fear:
+fear means it isn't happening
+use this tip in life
+
+it can be scary
+yet know that you never die
+math's unkillable
+
+there are always paths
+Gödel showed us this is true
+there's no cap on math
+
+try not to force things
+sit back and think it over
+knowledge is power
+
+revision control
+it's surprisingly helpful
+turns back your mistakes
+
+tired minds can help
+different perspectives help
+see it as useful
+
+see higher natures
+don't assume three dimensions
+you aren't limited
+
+to live is to dream
+there's always sight beyond
+focus your journey
+
+the bucket has holes
+this is not always bad news
+things can get in, too
+
+if you twist the truth,
+your own mind will be twisty
+let truth unravel lies
+
+if you look around,
+and really look, not just glance,
+you'll see stories abound
+
+pop news shares the bad
+tech and science news, the good
+pop news: bad for you
+
+animals near you...
+the friends you have make you up.
+and you make them up.
+
+a silver coin sits
+is it money? you decide
+always subjective
+
+more than what is said
+is in decoding itself
+read between the lines
+
+complexity math
+unpredictability
+everything's like this
+
+the berry on plant
+provides food. will provide shade.
+start thinking long-term.
+
+good wins in the end,
+because it cooperates
+replicates faster
+
+mutation is key
+natural selection is not
+more ways to evolve
+
+bad things make the news
+unusual makes the news
+good things: usual
+
+do it in your head
+you practice, you get better
+in mind: run races
+
+idea to absorb
+phrase: "leave well enough alone"
+'perfection' breaks things
+
+soap drips from bottle
+scrubbing wipes the virus off
+more scrubbing: less death
+
+reviewers hype show
+IMDb lets me down
+ignorance is bliss
+
+the ocean is death
+true, life requires water
+yet, gill-less, we die
+
+place for everything,
+and everything in its place.
+ordered mind is swift.
+
+younger open mind
+small push in wise direction
+large compounding good
+
+learning how to swim
+first, learn floating and stillness
+helpful life lesson
+
+alcohol sickness.
+wisdom comes at certain point.
+limits are wisdom.
+
+yes, this too shall pass.
+worrying isn't helpful.
+do what you can do.
+
+savor every step
+really taste the sensations
+slow down and enjoy
+
+passing messages
+broken communication
+still, we get things done.
+
+abandon the path
+realize there's something higher
+think outside the box
+
+letting go of space
+you are not bound to Euclid
+jump outside the box
+
+a great time stares out
+life's not a "thing"; it's process
+journey is reward
+
+purpose flux happens
+don't be ashamed about it
+past ideas are passed
+
+the sharpie pen moves
+ideas flow onto paper
+transcendence happens
+
+focus on the point
+see nothing else but the point
+let the mind dissolve
+
+story isn't real
+know: fiction is fictional
+don't predict from fake
+
+good haiku are good
+ignore what's heard otherwise
+they confine; you grow
+
+quick pace needs fluid
+thought must be allowed to stretch
+such then leads to growth
+
+the way out is up
+let fear not conquer your mind
+a wise strategy
+
+a fear left alone,
+is not a fear that lasts long
+fear needs attention
+
+a restful haiku
+might poetry lend insight?
+notice refreshing
+
+trees move around land
+new generation to move
+think in bigger time
 
 <hr>
 
