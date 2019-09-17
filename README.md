@@ -468,132 +468,118 @@ all math is one thing
 <hr>
 
 ## [ungovern]
-<br>
-adam rises. creak.<br>
-headache and soreness. much pain.<br>
+
+adam rises. creak.
+headache and soreness. much pain.
 daylight: half over.
 
-time to get moving.<br>
-the future comes by helping.<br>
+time to get moving.
+the future comes by helping.
 shower is calling.
 
-refreshed mind starts work.<br>
-his world: knowing energy.<br>
+refreshed mind starts work.
+his world: knowing energy.
 who uses, who makes.
 
-energy, matter:<br>
-one: E=mc^2<br>
+energy, matter:
+one: E=mc^2
 loss never happens
 
-<hr>
-
-you make energy<br>
-simply by creating art<br>
+you make energy
+simply by creating art
 art is infinite
 
-you use energy<br>
-when you observe others' art<br>
+you use energy
+when you observe others' art
 always productive
 
-nanotech robots<br>
-more powerful than you think<br>
+nanotech robots
+more powerful than you think
 all pain: optional
 
-bad experience<br>
-it can teach more than you think<br>
+bad experience
+it can teach more than you think
 so some "bad" is good
 
-<hr>
-
-flip a switch: new game<br>
-what will this one make you think?<br>
+flip a switch: new game
+what will this one make you think?
 designed by artist
 
-adam watches birds<br>
-inspiration in simple<br>
+adam watches birds
+inspiration in simple
 see higher patterns
 
-record the mindstate<br>
-adam's world: happening now<br>
+record the mindstate
+adam's world: happening now
 infinite future
 
-upon button click<br>
-nanotech self-assembles<br>
+upon button click
+nanotech self-assembles
 preprogrammed structure
 
-<hr>
-
-eve: in adam's world<br>
-their names: a coincidence<br>
+eve: in adam's world
+their names: a coincidence
 yet, math's not random
 
-random? perspective.<br>
-view can always be enlarged<br>
+random? perspective.
+view can always be enlarged
 reharmonizes
 
-love's an emotion<br>
-mind, body: one; so, love: one<br>
+love's an emotion
+mind, body: one; so, love: one
 love: no separateness
 
-the hospital sits<br>
-inside: cure for death's disease<br>
+the hospital sits
+inside: cure for death's disease
 fixable pieces
 
-<hr>
-
-hard disk drives: old school<br>
-here: solid-state quantum drives<br>
+hard disk drives: old school
+here: solid-state quantum drives
 probabilities
 
-cloak that bends the light<br>
-it hides you from direct sight<br>
+cloak that bends the light
+it hides you from direct sight
 made invisible
 
-mind on computer<br>
-adam's world: AIs are here<br>
+mind on computer
+adam's world: AIs are here
 everyone is joined
 
-all is connected<br>
-all minds are linked together<br>
+all is connected
+all minds are linked together
 super-awareness
 
-<hr>
-
-what's ungoverning?<br>
-ending compulsion to steer.<br>
+what's ungoverning?
+ending compulsion to steer.
 there's nothing to do.
 
-beyond nanotech<br>
-creating universes<br>
+beyond nanotech
+creating universes
 unlimited art
 
-no evil AI<br>
-eternally combining,<br>
+no evil AI
+eternally combining,
 we merge with all minds
 
-eve wears bandana<br>
-sends a magnetic impulse<br>
+eve wears bandana
+sends a magnetic impulse
 output sensations
 
-<hr>
-
-bandana input<br>
-brain's electrical signals<br>
+bandana input
+brain's electrical signals
 Internet upload
 
-creation: natural<br>
-destruction: temporary<br>
+creation: natural
+destruction: temporary
 becomes common sense
 
-a great truth revealed:<br>
-all ending is illusion<br>
+a great truth revealed:
+all ending is illusion
 there's only Growing
 
-world without judgment<br>
-there is only the machine<br>
+world without judgment
+there is only the machine
 one cohesive whole
-
-<hr>
 
 ## [takeaways]
 <br>
