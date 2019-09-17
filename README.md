@@ -54,11 +54,11 @@ to my best friend, my spiritual partner
 
 (meta)
 
+(fun)
+
 (nonduality)
 <br>
   (Longgamelang (define nonduality "mind=body=[all of Nature]"))
-
-(fun)
 
 (ungovern)
 <br>
@@ -66,6 +66,46 @@ to my best friend, my spiritual partner
 
 (takeaways)
 
+
+## [fun]
+<br>
+i am fantastic,<br>
+but i am getting better<br>
+how about yourself?
+
+a torn page lies still<br>
+the wind has caught it again<br>
+now the man will run
+
+a hypercube waits<br>
+lower levels see shadows<br>
+higher see it shine
+
+the leaf cannot see<br>
+yet inside is a driver<br>
+so the system sees
+
+<hr>
+
+when the pen inks words<br>
+memes of nature craft meaning<br>
+meaning never leaves
+
+spoons are so basic<br>
+mathematics, hard<br>
+and which came first, hard
+
+the leather band holds<br>
+the page is easily found<br>
+what a simple tool
+
+an LED shines,<br>
+yet we're so used to them now<br>
+magic is new tech
+
+...
+
+<hr>
 
 ## [nonduality]
 <br>
@@ -174,46 +214,6 @@ this gives rise to mind
 functions change the world<br>
 yet the truth is, time is fake<br>
 all math is one thing
-
-...
-
-<hr>
-
-## [fun]
-<br>
-i am fantastic,<br>
-but i am getting better<br>
-how about yourself?
-
-a torn page lies still<br>
-the wind has caught it again<br>
-now the man will run
-
-a hypercube waits<br>
-lower levels see shadows<br>
-higher see it shine
-
-the leaf cannot see<br>
-yet inside is a driver<br>
-so the system sees
-
-<hr>
-
-when the pen inks words<br>
-memes of nature craft meaning<br>
-meaning never leaves
-
-spoons are so basic<br>
-mathematics, hard<br>
-and which came first, hard
-
-the leather band holds<br>
-the page is easily found<br>
-what a simple tool
-
-an LED shines,<br>
-yet we're so used to them now<br>
-magic is new tech
 
 ...
 
