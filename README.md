@@ -68,42 +68,290 @@ to my best friend, my spiritual partner
 
 
 ## [fun]
-<br>
-i am fantastic,<br>
-but i am getting better<br>
-how about yourself?
 
-a torn page lies still<br>
-the wind has caught it again<br>
+velociraptor.
+feathered dinosaur. fast thief.
+run! get to the car!
+
+rubber band held stretched
+aiming for bug on teacher
+oops. anger, not praise.
+
+fractured my big toe
+be careful around machines
+mean escalator
+
+a torn page lies still
+the wind has caught it again
 now the man will run
 
-a hypercube waits<br>
-lower levels see shadows<br>
+a hypercube waits
+lower levels see shadows
 higher see it shine
 
-the leaf cannot see<br>
-yet inside is a driver<br>
+the leaf cannot see
+yet inside is a driver
 so the system sees
 
-<hr>
+i am fantastic,
+but i am getting better
+how about yourself?
 
-when the pen inks words<br>
-memes of nature craft meaning<br>
+when the pen inks words
+memes of nature craft meaning
 meaning never leaves
 
-spoons are so basic<br>
-mathematics, hard<br>
+spoons are so basic
+mathematics, hard
 and which came first, hard
 
-the leather band holds<br>
-the page is easily found<br>
+the leather band holds
+the page is easily found
 what a simple tool
 
-an LED shines,<br>
-yet we're so used to them now<br>
+an LED shines,
+yet we're so used to them now
 magic is new tech
 
-...
+haiku can hold truth
+the simple structure confines,
+and out comes new thought
+
+haiku... pause for thought
+refreshes the mind's outlook
+sudden peacefulness
+
+your name is a gift
+you can choose your own nickname
+doesn't always stick
+
+the tree's leaves are blown
+she watches and is intrigued
+is a storm coming?
+
+music in earbuds
+consciousness, tuned to new thought
+changing perspective
+
+reading a novel
+the characters become you
+integrated whole
+
+phone in back pocket
+communicate globally
+flying cars: less cool
+
+a scented candle
+heat, light, aroma; more, too
+feelings are endless
+
+green straw sits in cup
+green in color, and natural
+natural is the trend
+
+orange light shows the desk
+on desk: tech to see UV
+gain intuition
+
+blue cord rests alone
+helpful, thin piece of copper
+infinite uses
+
+grated chair in rain
+it's not fully wet, nor dry
+superposition
+
+this haiku: witty,
+neat, mathematical, and 
+self-referential.
+
+watching the shadows
+complexity... elegance...
+see what isn't there
+
+entwined woven math
+fractals are ever-present
+always can know more
+
+pencil on paper
+a sketch is being laid down
+imagination
+
+playing game with friends
+their cars simply go faster
+this is frustrating
+
+turns on airplane mode
+now no one can contact her
+chosen loneliness
+
+words: evolved meanings
+gestures, pointing, singing. words.
+communication
+
+rub shampoo on head
+clean body makes for clear mind
+inventions: from soap
+
+sign guides cars on road
+"watch out: twisty curves ahead!"
+we don't want crashes.
+
+ink rests upon page
+has emergent properties
+not atoms; layout.
+
+the page holds ideas
+higher patterns, shining down
+infinite patterns
+
+"sit up straight", she says
+upright body: open mind
+learn eternally
+
+not doing enough?
+not putting in enough work?
+nature's choice, not yours.
+
+quantum tunneling
+objects passing through objects
+this physics is real
+
+fundamental things:
+quarks, leptons, and bosons. strings?
+perhaps still smaller?
+
+cat waves its left arm
+photons changing behavior
+curious movement
+
+they write a haiku
+edit it for improvement
+nature has good taste
+
+step back from the sound
+twister holds record player
+hide in the cellar
+
+generalize memes
+meme: packet of memory
+memes compose nature
+
+water pushed by fish
+ripples in current, from fin
+onward, life, onward.
+
+squirrel leaps branch to branch
+terminal velocity
+survive fall from plane
+
+relativity
+faster in space: slower time
+space and time: spacetime
+
+general theory
+matter curves space tells movement
+relativity
+
+the plant asks for light
+it absorbs the energy
+grows, asks for more help
+
+a hypercube sits
+inside is a twisty truth:
+"in me contains all"
+
+this sentence: lying.
+must be like Gödel, and jump:
+what does "lying" mean?
+
+puzzle waits for you
+indeed, the puzzle needs you
+imagined, to real
+
+a broken watch band
+does time exist without you?
+awareness: needed?
+
+tray rests on table,
+confining the plates and bowls,
+yet abstracts the meal
+
+pillow rests on bed
+person's head rests on pillow
+the mind sleeps soundly
+
+perfect harmony
+resonating frequencies
+become congruent
+
+farina is still
+door bounces open, joy spreads
+kind mind helps others
+
+the left channel speaks
+the right channel adds music
+new thinking results
+
+a sound is made here
+whispers from a growing thought
+it's causing itself
+
+a wild time was had
+it twisted the reflections,
+and so doing, freed
+
+seeking a way out
+the path is all beaten here
+let's see where it leads
+
+white twisty coil
+so much anger about it
+tech keeps advancing
+
+flowers found pretty
+elegant white with green tinge
+wish i knew its name
+
+fractal broke itself
+without you, will it repair?
+suffering questions
+
+program pixel art
+be most true to thine own self
+digital nature
+
+on advanced topics
+there exists reasons perhaps
+acausal time, though?
+
+hand soap dispenser
+push the top and out comes soap
+flee, bacteria!
+
+"I just lost the Game."
+the game: forget you're playing
+if lost: announce
+
+run around looking
+need hiding spot from great bear
+towers over me
+
+mosquitos in car.
+going 60. windows down.
+just makes them bite legs.
+
+water rolls down can
+atmosphere is condensing
+forming a puddle
+
+old man naps in boat,
+rocked by slow waves on the lake.
+fish nibbles the bait.
+
+suction cup on glass,
+refrigerator magnet:
+sticky devices.
 
 <hr>
 
