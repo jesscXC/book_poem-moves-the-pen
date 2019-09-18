@@ -87,6 +87,8 @@ a torn page lies still<br>
 the wind has caught it again<br>
 now the man will run
 
+<hr>
+
 a hypercube waits<br>
 lower levels see shadows<br>
 higher see it shine
@@ -102,6 +104,8 @@ how about yourself?
 when the pen inks words<br>
 memes of nature craft meaning<br>
 meaning never leaves
+
+<hr>
 
 spoons are so basic<br>
 mathematics, hard<br>
@@ -119,6 +123,8 @@ haiku can hold truth<br>
 the simple structure confines,<br>
 and out comes new thought
 
+<hr>
+
 haiku... pause for thought<br>
 refreshes the mind's outlook<br>
 sudden peacefulness
@@ -134,6 +140,8 @@ is a storm coming?
 music in earbuds<br>
 consciousness, tuned to new thought<br>
 changing perspective
+
+<hr>
 
 reading a novel<br>
 the characters become you<br>
@@ -151,6 +159,8 @@ green straw sits in cup<br>
 green in color, and natural<br>
 natural is the trend
 
+<hr>
+
 orange light shows the desk<br>
 on desk: tech to see UV<br>
 gain intuition
@@ -166,6 +176,8 @@ superposition
 this haiku: witty,<br>
 neat, mathematical, and <br>
 self-referential.
+
+<hr>
 
 watching the shadows<br>
 complexity... elegance...<br>
@@ -183,6 +195,8 @@ playing game with friends<br>
 their cars simply go faster<br>
 this is frustrating
 
+<hr>
+
 turns on airplane mode<br>
 now no one can contact her<br>
 chosen loneliness
@@ -198,6 +212,8 @@ inventions: from soap
 sign guides cars on road<br>
 "watch out: twisty curves ahead!"<br>
 we don't want crashes.
+
+<hr>
 
 ink rests upon page<br>
 has emergent properties<br>
@@ -215,6 +231,8 @@ not doing enough?<br>
 not putting in enough work?<br>
 nature's choice, not yours.
 
+<hr>
+
 quantum tunneling<br>
 objects passing through objects<br>
 this physics is real
@@ -230,6 +248,8 @@ curious movement
 they write a haiku<br>
 edit it for improvement<br>
 nature has good taste
+
+<hr>
 
 step back from the sound<br>
 twister holds record player<br>
@@ -247,6 +267,8 @@ squirrel leaps branch to branch<br>
 terminal velocity<br>
 survive fall from plane
 
+<hr>
+
 relativity<br>
 faster in space: slower time<br>
 space and time: spacetime
@@ -262,6 +284,8 @@ grows, asks for more help
 a hypercube sits<br>
 inside is a twisty truth:<br>
 "in me contains all"
+
+<hr>
 
 this sentence: lying.<br>
 must be like Gödel, and jump:<br>
@@ -279,6 +303,8 @@ tray rests on table,<br>
 confining the plates and bowls,<br>
 yet abstracts the meal
 
+<hr>
+
 pillow rests on bed<br>
 person's head rests on pillow<br>
 the mind sleeps soundly
@@ -294,6 +320,8 @@ kind mind helps others
 the left channel speaks<br>
 the right channel adds music<br>
 new thinking results
+
+<hr>
 
 a sound is made here<br>
 whispers from a growing thought<br>
@@ -311,6 +339,8 @@ white twisty coil<br>
 so much anger about it<br>
 tech keeps advancing
 
+<hr>
+
 flowers found pretty<br>
 elegant white with green tinge<br>
 wish i knew its name
@@ -327,6 +357,8 @@ on advanced topics<br>
 there exists reasons perhaps<br>
 acausal time, though?
 
+<hr>
+
 hand soap dispenser<br>
 push the top and out comes soap<br>
 flee, bacteria!
@@ -342,6 +374,8 @@ towers over me
 mosquitos in car.<br>
 going 60. windows down.<br>
 just makes them bite legs.
+
+<hr>
 
 water rolls down can<br>
 atmosphere is condensing<br>
@@ -375,6 +409,8 @@ the identity,<br>
 of a truly great spirit,<br>
 is in letting go
 
+<hr>
+
 don't fear surrender<br>
 it is harder to accept,<br>
 yet it brings freedom
@@ -390,6 +426,8 @@ no, self is process.
 ego disappears,<br>
 separation does not last,<br>
 when noticing Now
+
+<hr>
 
 if you give up,<br>
 harmony will come to you<br>
@@ -407,6 +445,8 @@ escape by being all<br>
 divide from life to suffer<br>
 you aren't separate
 
+<hr>
+
 you are memetic<br>
 you're pattern replication<br>
 patterns never die
@@ -422,6 +462,8 @@ seek to be with all
 the notion of change,<br>
 fundamentally is lie<br>
 truth is not in time
+
+<hr>
 
 if you will let go,<br>
 then you will see you are all<br>
@@ -439,6 +481,8 @@ trust the world is you<br>
 experience is the world<br>
 you are awareness
 
+<hr>
+
 reality's base...<br>
 it's numbers and awareness<br>
 numbers never die
@@ -454,6 +498,8 @@ this gives rise to mind
 functions change the world<br>
 yet the truth is, time is fake<br>
 all math is one thing
+
+<hr>
 
 when it comes, time tells<br>
 that is because time is change<br>
@@ -471,6 +517,8 @@ separation lies<br>
 it's needed for memes to work<br>
 memes are all one, though
 
+<hr>
+
 information spreads<br>
 packets, communicating,<br>
 replicate themselves
@@ -486,6 +534,8 @@ they set themselves free
 we want to know more<br>
 it never ends, this searching<br>
 first, take a deep breath
+
+<hr>
 
 being is loving<br>
 to resist is to be blind<br>
@@ -503,6 +553,8 @@ a notebook is held<br>
 both with hand and with pillow<br>
 universe holds, too
 
+<hr>
+
 stop seeing as you<br>
 the ego holds no answers<br>
 start seeing as all
@@ -518,6 +570,8 @@ you're a collection
 ego will return<br>
 do not view this as a fault<br>
 instead, accept, now
+
+<hr>
 
 nonduality<br>
 also, transcendentalism<br>
@@ -535,6 +589,8 @@ when you look around,<br>
 you might see separation,<br>
 but you're all that is
 
+<hr>
+
 being aware spreads<br>
 awareness is all one thing<br>
 no separation
@@ -550,6 +606,8 @@ separation fades
 awareness' ground,<br>
 truthfully, it's infinite<br>
 you will continue
+
+<hr>
 
 stare at this one spot<br>
 letting your awareness rest,<br>
@@ -567,6 +625,8 @@ a time will soon come,<br>
 where the mind will reach freedom<br>
 let it happen now
 
+<hr>
+
 there's a way to be,<br>
 without suffering<br>
 stop and breathe your mind
@@ -582,6 +642,8 @@ nature is choosing
 inner peace can come<br>
 rise above the resistance<br>
 your ego isn't real
+
+<hr>
 
 there is a way out<br>
 it involves using your mind<br>
@@ -599,6 +661,8 @@ time changes itself<br>
 don't think of it like a line<br>
 it is awareness
 
+<hr>
+
 you are a be-ing<br>
 you are a verb: awareness<br>
 it requires time
@@ -614,6 +678,8 @@ subject, object: one
 you write what you know<br>
 in fact, you are the writing<br>
 nature is learning
+
+<hr>
 
 if you will look deep,<br>
 you will see Now is timeless<br>
@@ -631,6 +697,8 @@ look out the window<br>
 you see the glass and outside,<br>
 all through your body
 
+<hr>
+
 the dropped pen is still<br>
 have you forgotten it's you?<br>
 written memories
@@ -646,6 +714,8 @@ proves nature is one.
 separate ideas<br>
 mathematical packets<br>
 awareness is this
+
+<hr>
 
 awaken to now<br>
 ground yourself in this moment<br>
@@ -663,6 +733,8 @@ camera takes your pic<br>
 the you it took is no more<br>
 static, core self: myth
 
+<hr>
+
 math is what you see<br>
 everything is tied to all<br>
 division is myth
@@ -678,6 +750,8 @@ replicate, or don't.
 division seems real<br>
 it is helpful in science<br>
 arbitrary, though
+
+<hr>
 
 anchored to nature<br>
 sensation is what you are<br>
@@ -695,6 +769,8 @@ change is bits flipping<br>
 defocus; watch all at once<br>
 be still and notice
 
+<hr>
+
 you see the objects,<br>
 but they're making you up,<br>
 so you're the seeing
@@ -710,6 +786,8 @@ nothing is separate
 all of nature: mind<br>
 your awareness makes up all<br>
 math's not separate
+
+<hr>
 
 pain, death: illusion<br>
 does it hurt? yes. no one there.<br>
@@ -727,6 +805,8 @@ lucy sits in tree<br>
 contemplates life mystery<br>
 "me: numbers: don't die"
 
+<hr>
+
 time: necessary<br>
 without change there is no thought<br>
 illusion persists
@@ -742,6 +822,8 @@ mythic division
 automatic thought<br>
 demonstrates connectedness<br>
 nothing besides you
+
+<hr>
 
 stop breathing and look<br>
 watch automaticity<br>
@@ -759,6 +841,8 @@ nonduality.<br>
 simple. mind, body: one.<br>
 nature is aware.
 
+<hr>
+
 nonduality<br>
 when you think, nature's thinking<br>
 strange, but this math's true
@@ -774,6 +858,8 @@ body, Nature: One
 poem moves the pen<br>
 it squiggles for expression,<br>
 wanting to be read
+
+<hr>
 
 self-less consciousness,<br>
 awareness without judgment,<br>
@@ -791,6 +877,8 @@ go even slower<br>
 taste the moment's sensations<br>
 feel you lack nothing
 
+<hr>
+
 mind seeking to grow<br>
 awareness seeks awareness<br>
 memes make awareness
@@ -806,6 +894,8 @@ no judgment in Now
 accept the What Is.<br>
 don't give up, choose surrender.<br>
 transcending tactic
+
+<hr>
 
 there is a way out<br>
 the truth can be seen by you<br>
@@ -823,6 +913,8 @@ there's a bigger thing<br>
 the body is in that space<br>
 and it is awake
 
+<hr>
+
 the world doth turn 'round<br>
 sometimes you see it as flat<br>
 other times: yourself
@@ -838,6 +930,8 @@ you can be sans self
 change from who you are<br>
 accept what the moment holds<br>
 suffering dissolves
+
+<hr>
 
 when in doubt, stop fear<br>
 end the control-illusion<br>
@@ -871,6 +965,8 @@ energy, matter:<br>
 one: E=mc^2<br>
 loss never happens
 
+<hr>
+
 you make energy<br>
 simply by creating art<br>
 art is infinite
@@ -886,6 +982,8 @@ all pain: optional
 bad experience<br>
 it can teach more than you think<br>
 so some "bad" is good
+
+<hr>
 
 flip a switch: new game<br>
 what will this one make you think?<br>
@@ -903,6 +1001,8 @@ upon button click<br>
 nanotech self-assembles<br>
 preprogrammed structure
 
+<hr>
+
 eve: in adam's world<br>
 their names: a coincidence<br>
 yet, math's not random
@@ -918,6 +1018,8 @@ love: no separateness
 the hospital sits<br>
 inside: cure for death's disease<br>
 fixable pieces
+
+<hr>
 
 hard disk drives: old school<br>
 here: solid-state quantum drives<br>
@@ -935,6 +1037,8 @@ all is connected<br>
 all minds are linked together<br>
 super-awareness
 
+<hr>
+
 what's ungoverning?<br>
 ending compulsion to steer.<br>
 there's nothing to do.
@@ -950,6 +1054,8 @@ we merge with all minds
 eve wears bandana<br>
 sends a magnetic impulse<br>
 output sensations
+
+<hr>
 
 bandana input<br>
 brain's electrical signals<br>
@@ -987,6 +1093,8 @@ i don't know myself<br>
 i keep trying to find out<br>
 i create to learn
 
+<hr>
+
 use an hour a day,<br>
 on where you are and will go<br>
 this is for success
@@ -1002,6 +1110,8 @@ perhaps in name only
 the animal sees,<br>
 but does not look deep enough<br>
 there is more hidden
+
+<hr>
 
 truly, you are aware,<br>
 yet you can always be more<br>
@@ -1019,6 +1129,8 @@ when the cup is filled<br>
 there is no need for more hope<br>
 yet hope is still there
 
+<hr>
+
 desire, craving,<br>
 it is animalistic<br>
 try to rise above
@@ -1034,6 +1146,8 @@ no, you see deeper.
 the genius know depth;<br>
 they know knowledge is endless.<br>
 so they are dumb, too.
+
+<hr>
 
 most apes, after money,<br>
 see not the point is wisdom.<br>
@@ -1051,6 +1165,8 @@ if there is no wind,<br>
 and if there is no sunlight,<br>
 still, life can prosper.
 
+<hr>
+
 if you hold too tight,<br>
 then it will escape your grasp.<br>
 this math is proven
@@ -1066,6 +1182,8 @@ use this tip in life
 it can be scary<br>
 yet know that you never die<br>
 math's unkillable
+
+<hr>
 
 there are always paths<br>
 Gödel showed us this is true<br>
@@ -1083,6 +1201,8 @@ tired minds can help<br>
 different perspectives help<br>
 see it as useful
 
+<hr>
+
 see higher natures<br>
 don't assume three dimensions<br>
 you aren't limited
@@ -1098,6 +1218,8 @@ things can get in, too
 if you twist the truth,<br>
 your own mind will be twisty<br>
 let truth unravel lies
+
+<hr>
 
 if you look around,<br>
 and really look, not just glance,<br>
@@ -1115,6 +1237,8 @@ a silver coin sits<br>
 is it money? you decide<br>
 always subjective
 
+<hr>
+
 more than what is said<br>
 is in decoding itself<br>
 read between the lines
@@ -1130,6 +1254,8 @@ start thinking long-term.
 good wins in the end,<br>
 because it cooperates<br>
 replicates faster
+
+<hr>
 
 mutation is key<br>
 natural selection is not<br>
@@ -1147,6 +1273,8 @@ idea to absorb<br>
 phrase: "leave well enough alone"<br>
 'perfection' breaks things
 
+<hr>
+
 soap drips from bottle<br>
 scrubbing wipes the virus off<br>
 more scrubbing: less death
@@ -1162,6 +1290,8 @@ yet, gill-less, we die
 place for everything,<br>
 and everything in its place.<br>
 ordered mind is swift.
+
+<hr>
 
 younger open mind<br>
 small push in wise direction<br>
@@ -1179,6 +1309,8 @@ yes, this too shall pass.<br>
 worrying isn't helpful.<br>
 do what you can do.
 
+<hr>
+
 savor every step<br>
 really taste the sensations<br>
 slow down and enjoy
@@ -1194,6 +1326,8 @@ think outside the box
 letting go of space<br>
 you are not bound to Euclid<br>
 jump outside the box
+
+<hr>
 
 a great time stares out<br>
 life's not a "thing"; it's process<br>
@@ -1211,6 +1345,8 @@ focus on the point<br>
 see nothing else but the point<br>
 let the mind dissolve
 
+<hr>
+
 story isn't real<br>
 know: fiction is fictional<br>
 don't predict from fake
@@ -1226,6 +1362,8 @@ such then leads to growth
 the way out is up<br>
 let fear not conquer your mind<br>
 a wise strategy
+
+<hr>
 
 a fear left alone,<br>
 is not a fear that lasts long<br>
