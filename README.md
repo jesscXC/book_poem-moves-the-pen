@@ -971,272 +971,272 @@ one cohesive whole
 
 ## [takeaways]
 
-respect is earned
-don't demand it from others
+respect is earned<br>
+don't demand it from others<br>
 make yourself better
 
-small deeds make great acts
-so start now: one foot in front
+small deeds make great acts<br>
+so start now: one foot in front<br>
 keep on keeping on
 
-nothing is easy
-however, nothing is hard
+nothing is easy<br>
+however, nothing is hard<br>
 perspective is all
 
-i don't know myself
-i keep trying to find out
+i don't know myself<br>
+i keep trying to find out<br>
 i create to learn
 
-use an hour a day,
-on where you are and will go
+use an hour a day,<br>
+on where you are and will go<br>
 this is for success
 
-take the longer view
-improve the distant future
+take the longer view<br>
+improve the distant future<br>
 effort gains purpose
 
-a weed, once whacked,
-is it truly still a weed?
+a weed, once whacked,<br>
+is it truly still a weed?<br>
 perhaps in name only
 
-the animal sees,
-but does not look deep enough
+the animal sees,<br>
+but does not look deep enough<br>
 there is more hidden
 
-truly, you are aware,
-yet you can always be more
+truly, you are aware,<br>
+yet you can always be more<br>
 do not forget this
 
-be an open book
-withholding ideas binds you
+be an open book<br>
+withholding ideas binds you<br>
 reveal to be free
 
-to craft is to grow
-you discover when you make
+to craft is to grow<br>
+you discover when you make<br>
 simply start writing
 
-when the cup is filled
-there is no need for more hope
+when the cup is filled<br>
+there is no need for more hope<br>
 yet hope is still there
 
-desire, craving,
-it is animalistic
+desire, craving,<br>
+it is animalistic<br>
 try to rise above
 
-four-dimensional:
-it can be intuitive.
+four-dimensional:<br>
+it can be intuitive.<br>
 don't believe the doubt.
 
-you look at the screen.
-do you see a flat surface?
+you look at the screen.<br>
+do you see a flat surface?<br>
 no, you see deeper.
 
-the genius know depth;
-they know knowledge is endless.
+the genius know depth;<br>
+they know knowledge is endless.<br>
 so they are dumb, too.
 
-most apes, after money,
-see not the point is wisdom.
+most apes, after money,<br>
+see not the point is wisdom.<br>
 wisdom makes you last.
 
-wheels are invented
-do not think of them as one
+wheels are invented<br>
+do not think of them as one<br>
 cars, and planes, use them
 
-creation bears fruit
-destruction is limited
+creation bears fruit<br>
+destruction is limited<br>
 cooperate: win
 
-if there is no wind,
-and if there is no sunlight,
+if there is no wind,<br>
+and if there is no sunlight,<br>
 still, life can prosper.
 
-if you hold too tight,
-then it will escape your grasp.
+if you hold too tight,<br>
+then it will escape your grasp.<br>
 this math is proven
 
-wisdom: limitless
-yet also are fear and doubt
+wisdom: limitless<br>
+yet also are fear and doubt<br>
 all can be useful
 
-there's a trick to fear:
-fear means it isn't happening
+there's a trick to fear:<br>
+fear means it isn't happening<br>
 use this tip in life
 
-it can be scary
-yet know that you never die
+it can be scary<br>
+yet know that you never die<br>
 math's unkillable
 
-there are always paths
-Gödel showed us this is true
+there are always paths<br>
+Gödel showed us this is true<br>
 there's no cap on math
 
-try not to force things
-sit back and think it over
+try not to force things<br>
+sit back and think it over<br>
 knowledge is power
 
-revision control
-it's surprisingly helpful
+revision control<br>
+it's surprisingly helpful<br>
 turns back your mistakes
 
-tired minds can help
-different perspectives help
+tired minds can help<br>
+different perspectives help<br>
 see it as useful
 
-see higher natures
-don't assume three dimensions
+see higher natures<br>
+don't assume three dimensions<br>
 you aren't limited
 
-to live is to dream
-there's always sight beyond
+to live is to dream<br>
+there's always sight beyond<br>
 focus your journey
 
-the bucket has holes
-this is not always bad news
+the bucket has holes<br>
+this is not always bad news<br>
 things can get in, too
 
-if you twist the truth,
-your own mind will be twisty
+if you twist the truth,<br>
+your own mind will be twisty<br>
 let truth unravel lies
 
-if you look around,
-and really look, not just glance,
+if you look around,<br>
+and really look, not just glance,<br>
 you'll see stories abound
 
-pop news shares the bad
-tech and science news, the good
+pop news shares the bad<br>
+tech and science news, the good<br>
 pop news: bad for you
 
-animals near you...
-the friends you have make you up.
+animals near you...<br>
+the friends you have make you up.<br>
 and you make them up.
 
-a silver coin sits
-is it money? you decide
+a silver coin sits<br>
+is it money? you decide<br>
 always subjective
 
-more than what is said
-is in decoding itself
+more than what is said<br>
+is in decoding itself<br>
 read between the lines
 
-complexity math
-unpredictability
+complexity math<br>
+unpredictability<br>
 everything's like this
 
-the berry on plant
-provides food. will provide shade.
+the berry on plant<br>
+provides food. will provide shade.<br>
 start thinking long-term.
 
-good wins in the end,
-because it cooperates
+good wins in the end,<br>
+because it cooperates<br>
 replicates faster
 
-mutation is key
-natural selection is not
+mutation is key<br>
+natural selection is not<br>
 more ways to evolve
 
-bad things make the news
-unusual makes the news
+bad things make the news<br>
+unusual makes the news<br>
 good things: usual
 
-do it in your head
-you practice, you get better
+do it in your head<br>
+you practice, you get better<br>
 in mind: run races
 
-idea to absorb
-phrase: "leave well enough alone"
+idea to absorb<br>
+phrase: "leave well enough alone"<br>
 'perfection' breaks things
 
-soap drips from bottle
-scrubbing wipes the virus off
+soap drips from bottle<br>
+scrubbing wipes the virus off<br>
 more scrubbing: less death
 
-reviewers hype show
-IMDb lets me down
+reviewers hype show<br>
+IMDb lets me down<br>
 ignorance is bliss
 
-the ocean is death
-true, life requires water
+the ocean is death<br>
+true, life requires water<br>
 yet, gill-less, we die
 
-place for everything,
-and everything in its place.
+place for everything,<br>
+and everything in its place.<br>
 ordered mind is swift.
 
-younger open mind
-small push in wise direction
+younger open mind<br>
+small push in wise direction<br>
 large compounding good
 
-learning how to swim
-first, learn floating and stillness
+learning how to swim<br>
+first, learn floating and stillness<br>
 helpful life lesson
 
-alcohol sickness.
-wisdom comes at certain point.
+alcohol sickness.<br>
+wisdom comes at certain point.<br>
 limits are wisdom.
 
-yes, this too shall pass.
-worrying isn't helpful.
+yes, this too shall pass.<br>
+worrying isn't helpful.<br>
 do what you can do.
 
-savor every step
-really taste the sensations
+savor every step<br>
+really taste the sensations<br>
 slow down and enjoy
 
-passing messages
-broken communication
+passing messages<br>
+broken communication<br>
 still, we get things done.
 
-abandon the path
-realize there's something higher
+abandon the path<br>
+realize there's something higher<br>
 think outside the box
 
-letting go of space
-you are not bound to Euclid
+letting go of space<br>
+you are not bound to Euclid<br>
 jump outside the box
 
-a great time stares out
-life's not a "thing"; it's process
+a great time stares out<br>
+life's not a "thing"; it's process<br>
 journey is reward
 
-purpose flux happens
-don't be ashamed about it
+purpose flux happens<br>
+don't be ashamed about it<br>
 past ideas are passed
 
-the sharpie pen moves
-ideas flow onto paper
+the sharpie pen moves<br>
+ideas flow onto paper<br>
 transcendence happens
 
-focus on the point
-see nothing else but the point
+focus on the point<br>
+see nothing else but the point<br>
 let the mind dissolve
 
-story isn't real
-know: fiction is fictional
+story isn't real<br>
+know: fiction is fictional<br>
 don't predict from fake
 
-good haiku are good
-ignore what's heard otherwise
+good haiku are good<br>
+ignore what's heard otherwise<br>
 they confine; you grow
 
-quick pace needs fluid
-thought must be allowed to stretch
+quick pace needs fluid<br>
+thought must be allowed to stretch<br>
 such then leads to growth
 
-the way out is up
-let fear not conquer your mind
+the way out is up<br>
+let fear not conquer your mind<br>
 a wise strategy
 
-a fear left alone,
-is not a fear that lasts long
+a fear left alone,<br>
+is not a fear that lasts long<br>
 fear needs attention
 
-a restful haiku
-might poetry lend insight?
+a restful haiku<br>
+might poetry lend insight?<br>
 notice refreshing
 
-trees move around land
-new generation to move
+trees move around land<br>
+new generation to move<br>
 think in bigger time
 
 <hr>
