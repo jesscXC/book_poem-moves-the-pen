@@ -6,6 +6,8 @@ penned with Jess Cummins
 @jesscxc
 <br>
 [NoLiesPlease.com](http://noliesplease.com/)
+<br>
+[Kindle version](https://www.amazon.com/dp/B07K2H7KB9/)
 
 
 ## [introduction]
