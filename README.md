@@ -8,7 +8,8 @@ penned with Jess Cummins
 [NoLiesPlease.com](http://noliesplease.com/)
 <br>
 [Kindle version](https://www.amazon.com/dp/B07K2H7KB9/)
-
+<br>
+[poem_moves_the_pen_v1.txt](https://raw.githubusercontent.com/jesscXC/book_poem-moves-the-pen/master/poem_moves_the_pen_v1.txt)
 
 ## [introduction]
 
