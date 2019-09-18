@@ -71,288 +71,288 @@ to my best friend, my spiritual partner
 
 ## [fun]
 
-velociraptor.
-feathered dinosaur. fast thief.
+velociraptor.<br>
+feathered dinosaur. fast thief.<br>
 run! get to the car!
 
-rubber band held stretched
-aiming for bug on teacher
+rubber band held stretched<br>
+aiming for bug on teacher<br>
 oops. anger, not praise.
 
-fractured my big toe
-be careful around machines
+fractured my big toe<br>
+be careful around machines<br>
 mean escalator
 
-a torn page lies still
-the wind has caught it again
+a torn page lies still<br>
+the wind has caught it again<br>
 now the man will run
 
-a hypercube waits
-lower levels see shadows
+a hypercube waits<br>
+lower levels see shadows<br>
 higher see it shine
 
-the leaf cannot see
-yet inside is a driver
+the leaf cannot see<br>
+yet inside is a driver<br>
 so the system sees
 
-i am fantastic,
-but i am getting better
+i am fantastic,<br>
+but i am getting better<br>
 how about yourself?
 
-when the pen inks words
-memes of nature craft meaning
+when the pen inks words<br>
+memes of nature craft meaning<br>
 meaning never leaves
 
-spoons are so basic
-mathematics, hard
+spoons are so basic<br>
+mathematics, hard<br>
 and which came first, hard
 
-the leather band holds
-the page is easily found
+the leather band holds<br>
+the page is easily found<br>
 what a simple tool
 
-an LED shines,
-yet we're so used to them now
+an LED shines,<br>
+yet we're so used to them now<br>
 magic is new tech
 
-haiku can hold truth
-the simple structure confines,
+haiku can hold truth<br>
+the simple structure confines,<br>
 and out comes new thought
 
-haiku... pause for thought
-refreshes the mind's outlook
+haiku... pause for thought<br>
+refreshes the mind's outlook<br>
 sudden peacefulness
 
-your name is a gift
-you can choose your own nickname
+your name is a gift<br>
+you can choose your own nickname<br>
 doesn't always stick
 
-the tree's leaves are blown
-she watches and is intrigued
+the tree's leaves are blown<br>
+she watches and is intrigued<br>
 is a storm coming?
 
-music in earbuds
-consciousness, tuned to new thought
+music in earbuds<br>
+consciousness, tuned to new thought<br>
 changing perspective
 
-reading a novel
-the characters become you
+reading a novel<br>
+the characters become you<br>
 integrated whole
 
-phone in back pocket
-communicate globally
+phone in back pocket<br>
+communicate globally<br>
 flying cars: less cool
 
-a scented candle
-heat, light, aroma; more, too
+a scented candle<br>
+heat, light, aroma; more, too<br>
 feelings are endless
 
-green straw sits in cup
-green in color, and natural
+green straw sits in cup<br>
+green in color, and natural<br>
 natural is the trend
 
-orange light shows the desk
-on desk: tech to see UV
+orange light shows the desk<br>
+on desk: tech to see UV<br>
 gain intuition
 
-blue cord rests alone
-helpful, thin piece of copper
+blue cord rests alone<br>
+helpful, thin piece of copper<br>
 infinite uses
 
-grated chair in rain
-it's not fully wet, nor dry
+grated chair in rain<br>
+it's not fully wet, nor dry<br>
 superposition
 
-this haiku: witty,
-neat, mathematical, and 
+this haiku: witty,<br>
+neat, mathematical, and <br>
 self-referential.
 
-watching the shadows
-complexity... elegance...
+watching the shadows<br>
+complexity... elegance...<br>
 see what isn't there
 
-entwined woven math
-fractals are ever-present
+entwined woven math<br>
+fractals are ever-present<br>
 always can know more
 
-pencil on paper
-a sketch is being laid down
+pencil on paper<br>
+a sketch is being laid down<br>
 imagination
 
-playing game with friends
-their cars simply go faster
+playing game with friends<br>
+their cars simply go faster<br>
 this is frustrating
 
-turns on airplane mode
-now no one can contact her
+turns on airplane mode<br>
+now no one can contact her<br>
 chosen loneliness
 
-words: evolved meanings
-gestures, pointing, singing. words.
+words: evolved meanings<br>
+gestures, pointing, singing. words.<br>
 communication
 
-rub shampoo on head
-clean body makes for clear mind
+rub shampoo on head<br>
+clean body makes for clear mind<br>
 inventions: from soap
 
-sign guides cars on road
-"watch out: twisty curves ahead!"
+sign guides cars on road<br>
+"watch out: twisty curves ahead!"<br>
 we don't want crashes.
 
-ink rests upon page
-has emergent properties
+ink rests upon page<br>
+has emergent properties<br>
 not atoms; layout.
 
-the page holds ideas
-higher patterns, shining down
+the page holds ideas<br>
+higher patterns, shining down<br>
 infinite patterns
 
-"sit up straight", she says
-upright body: open mind
+"sit up straight", she says<br>
+upright body: open mind<br>
 learn eternally
 
-not doing enough?
-not putting in enough work?
+not doing enough?<br>
+not putting in enough work?<br>
 nature's choice, not yours.
 
-quantum tunneling
-objects passing through objects
+quantum tunneling<br>
+objects passing through objects<br>
 this physics is real
 
-fundamental things:
-quarks, leptons, and bosons. strings?
+fundamental things:<br>
+quarks, leptons, and bosons. strings?<br>
 perhaps still smaller?
 
-cat waves its left arm
-photons changing behavior
+cat waves its left arm<br>
+photons changing behavior<br>
 curious movement
 
-they write a haiku
-edit it for improvement
+they write a haiku<br>
+edit it for improvement<br>
 nature has good taste
 
-step back from the sound
-twister holds record player
+step back from the sound<br>
+twister holds record player<br>
 hide in the cellar
 
-generalize memes
-meme: packet of memory
+generalize memes<br>
+meme: packet of memory<br>
 memes compose nature
 
-water pushed by fish
-ripples in current, from fin
+water pushed by fish<br>
+ripples in current, from fin<br>
 onward, life, onward.
 
-squirrel leaps branch to branch
-terminal velocity
+squirrel leaps branch to branch<br>
+terminal velocity<br>
 survive fall from plane
 
-relativity
-faster in space: slower time
+relativity<br>
+faster in space: slower time<br>
 space and time: spacetime
 
-general theory
-matter curves space tells movement
+general theory<br>
+matter curves space tells movement<br>
 relativity
 
-the plant asks for light
-it absorbs the energy
+the plant asks for light<br>
+it absorbs the energy<br>
 grows, asks for more help
 
-a hypercube sits
-inside is a twisty truth:
+a hypercube sits<br>
+inside is a twisty truth:<br>
 "in me contains all"
 
-this sentence: lying.
-must be like Gödel, and jump:
+this sentence: lying.<br>
+must be like Gödel, and jump:<br>
 what does "lying" mean?
 
-puzzle waits for you
-indeed, the puzzle needs you
+puzzle waits for you<br>
+indeed, the puzzle needs you<br>
 imagined, to real
 
-a broken watch band
-does time exist without you?
+a broken watch band<br>
+does time exist without you?<br>
 awareness: needed?
 
-tray rests on table,
-confining the plates and bowls,
+tray rests on table,<br>
+confining the plates and bowls,<br>
 yet abstracts the meal
 
-pillow rests on bed
-person's head rests on pillow
+pillow rests on bed<br>
+person's head rests on pillow<br>
 the mind sleeps soundly
 
-perfect harmony
-resonating frequencies
+perfect harmony<br>
+resonating frequencies<br>
 become congruent
 
-farina is still
-door bounces open, joy spreads
+farina is still<br>
+door bounces open, joy spreads<br>
 kind mind helps others
 
-the left channel speaks
-the right channel adds music
+the left channel speaks<br>
+the right channel adds music<br>
 new thinking results
 
-a sound is made here
-whispers from a growing thought
+a sound is made here<br>
+whispers from a growing thought<br>
 it's causing itself
 
-a wild time was had
-it twisted the reflections,
+a wild time was had<br>
+it twisted the reflections,<br>
 and so doing, freed
 
-seeking a way out
-the path is all beaten here
+seeking a way out<br>
+the path is all beaten here<br>
 let's see where it leads
 
-white twisty coil
-so much anger about it
+white twisty coil<br>
+so much anger about it<br>
 tech keeps advancing
 
-flowers found pretty
-elegant white with green tinge
+flowers found pretty<br>
+elegant white with green tinge<br>
 wish i knew its name
 
-fractal broke itself
-without you, will it repair?
+fractal broke itself<br>
+without you, will it repair?<br>
 suffering questions
 
-program pixel art
-be most true to thine own self
+program pixel art<br>
+be most true to thine own self<br>
 digital nature
 
-on advanced topics
-there exists reasons perhaps
+on advanced topics<br>
+there exists reasons perhaps<br>
 acausal time, though?
 
-hand soap dispenser
-push the top and out comes soap
+hand soap dispenser<br>
+push the top and out comes soap<br>
 flee, bacteria!
 
-"I just lost the Game."
-the game: forget you're playing
+"I just lost the Game."<br>
+the game: forget you're playing<br>
 if lost: announce
 
-run around looking
-need hiding spot from great bear
+run around looking<br>
+need hiding spot from great bear<br>
 towers over me
 
-mosquitos in car.
-going 60. windows down.
+mosquitos in car.<br>
+going 60. windows down.<br>
 just makes them bite legs.
 
-water rolls down can
-atmosphere is condensing
+water rolls down can<br>
+atmosphere is condensing<br>
 forming a puddle
 
-old man naps in boat,
-rocked by slow waves on the lake.
+old man naps in boat,<br>
+rocked by slow waves on the lake.<br>
 fish nibbles the bait.
 
-suction cup on glass,
-refrigerator magnet:
+suction cup on glass,<br>
+refrigerator magnet:<br>
 sticky devices.
 
 <hr>
