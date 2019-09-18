@@ -67,6 +67,8 @@ to my best friend, my spiritual partner
 (takeaways)
 
 
+<hr>
+
 ## [fun]
 
 velociraptor.
@@ -356,114 +358,498 @@ sticky devices.
 <hr>
 
 ## [nonduality]
-<br>
-you are quantum soup<br>
-let this be known to all things:<br>
+
+you are quantum soup
+let this be known to all things:
 nature is seeing
 
-the time will come,<br>
-when the future will be past,<br>
+the time will come,
+when the future will be past,
 so cherish the Now
 
-there are always ways,<br>
-to make yourself a success<br>
+there are always ways,
+to make yourself a success
 you must lose your self
 
-the identity,<br>
-of a truly great spirit,<br>
+the identity,
+of a truly great spirit,
 is in letting go
 
-<hr>
-
-don't fear surrender<br>
-it is harder to accept,<br>
+don't fear surrender
+it is harder to accept,
 yet it brings freedom
 
-there can be a way,<br>
-to go back and change the past<br>
+there can be a way,
+to go back and change the past
 see it all as One
 
-the self does believe,<br>
-that it is part of the whole.<br>
+the self does believe,
+that it is part of the whole.
 no, self is process.
 
-ego disappears,<br>
-separation does not last,<br>
+ego disappears,
+separation does not last,
 when noticing Now
 
-<hr>
-
-if you give up,<br>
-harmony will come to you<br>
+if you give up,
+harmony will come to you
 ego is resistance
 
-life seeks harmony<br>
-eternal and forever,<br>
+life seeks harmony
+eternal and forever,
 death is illusion
 
-what does the pain bring?<br>
-identify as the self,<br>
+what does the pain bring?
+identify as the self,
 to live in the dream
 
-escape by being all<br>
-divide from life to suffer<br>
+escape by being all
+divide from life to suffer
 you aren't separate
 
-<hr>
-
-you are memetic<br>
-you're pattern replication<br>
+you are memetic
+you're pattern replication
 patterns never die
 
-you are all there is<br>
-separateness is a veil<br>
+you are all there is
+separateness is a veil
 truly, life is you
 
-you sense the body<br>
-barriers are sometimes placed<br>
+you sense the body
+barriers are sometimes placed
 seek to be with all
 
-the notion of change,<br>
-fundamentally is lie<br>
+the notion of change,
+fundamentally is lie
 truth is not in time
 
-<hr>
-
-if you will let go,<br>
-then you will see you are all<br>
+if you will let go,
+then you will see you are all
 the self will dissolve
 
-when free, you let go<br>
-identify with nothing<br>
+when free, you let go
+identify with nothing
 release the ego
 
-see you are alive<br>
-let yourself breathe the air in<br>
+see you are alive
+let yourself breathe the air in
 notice the moment
 
-trust the world is you<br>
-experience is the world<br>
+trust the world is you
+experience is the world
 you are awareness
 
-<hr>
-
-reality's base...<br>
-it's numbers and awareness<br>
+reality's base...
+it's numbers and awareness
 numbers never die
 
-the pen leaves a trail<br>
-the human writes with the ink<br>
+the pen leaves a trail
+the human writes with the ink
 the universe reads
 
-the meme tries to live<br>
-to replicate, it changes<br>
+the meme tries to live
+to replicate, it changes
 this gives rise to mind
 
-functions change the world<br>
-yet the truth is, time is fake<br>
+functions change the world
+yet the truth is, time is fake
 all math is one thing
 
-...
+when it comes, time tells
+that is because time is change
+time is required
+
+when the mind seeks love,
+sought is separation, gone
+accept to feel it
+
+let go of the sought
+you're code, processing itself
+the code is data
+
+separation lies
+it's needed for memes to work
+memes are all one, though
+
+information spreads
+packets, communicating,
+replicate themselves
+
+the seeker is sought
+they are two sides of a coin
+one is the other
+
+the speakers of truth,
+they have no need to mislead
+they set themselves free
+
+we want to know more
+it never ends, this searching
+first, take a deep breath
+
+being is loving
+to resist is to be blind
+accept, and love comes
+
+this moment holds you
+look at it with baby eyes
+let yourself feel peace
+
+memes are what make you
+you move, you think, you are, memes
+don't fear; you're nature
+
+a notebook is held
+both with hand and with pillow
+universe holds, too
+
+stop seeing as you
+the ego holds no answers
+start seeing as all
+
+still your body, now
+notice you are not conscious
+you do not exist
+
+patterns are running
+sometimes they seem separate
+you're a collection
+
+ego will return
+do not view this as a fault
+instead, accept, now
+
+nonduality
+also, transcendentalism
+they help you dissolve
+
+begin wordlooping
+dissolve your ego in words
+see the relations
+
+notice bits flipping
+see how memes rub off on others
+good ideas, spreading
+
+when you look around,
+you might see separation,
+but you're all that is
+
+being aware spreads
+awareness is all one thing
+no separation
+
+knowledge has levels
+awakeness is leveled, too
+they aren't concrete, though
+
+the mind can be still,
+then the ego will dissolve
+separation fades
+
+awareness' ground,
+truthfully, it's infinite
+you will continue
+
+stare at this one spot
+letting your awareness rest,
+realize you are all
+
+time is illusion,
+yet mind requires changes
+static fields don't see
+
+the way is broken,
+when the ego tries to fight
+instead, absorb peace
+
+a time will soon come,
+where the mind will reach freedom
+let it happen now
+
+there's a way to be,
+without suffering
+stop and breathe your mind
+
+dissolve the ego
+simply surrender to now
+accept; don't resist
+
+what is can be changed
+you do not do the changing
+nature is choosing
+
+inner peace can come
+rise above the resistance
+your ego isn't real
+
+there is a way out
+it involves using your mind
+transcend to the Now
+
+to hold onto fear,
+the self must be resisting
+watch. dissolve the self.
+
+the path is stillness
+watch the bits of nature flip
+see the self dissolve
+
+time changes itself
+don't think of it like a line
+it is awareness
+
+you are a be-ing
+you are a verb: awareness
+it requires time
+
+mind: ones and zeros
+people believe in free will
+there's no evidence
+
+a shiny surface
+it's not separate from you
+subject, object: one
+
+you write what you know
+in fact, you are the writing
+nature is learning
+
+if you will look deep,
+you will see Now is timeless
+change is illusion
+
+wind ripples a pond
+boat shakes; you’re sitting in it
+you shake the pond, too
+
+jump outside the box
+realize you're not just an ape
+you are the cosmos
+
+look out the window
+you see the glass and outside,
+all through your body
+
+the dropped pen is still
+have you forgotten it's you?
+written memories
+
+automatic moves
+you suppose that you chose them
+nope; nature's choosing
+
+stillness strategy:
+notice unconscious movements.
+proves nature is one.
+
+separate ideas
+mathematical packets
+awareness is this
+
+awaken to now
+ground yourself in this moment
+nothing is missing
+
+a twist at the end
+turns out ideas never die
+you are an idea
+
+reflections in glass
+quantumly entangled sight
+nothing is separate
+
+camera takes your pic
+the you it took is no more
+static, core self: myth
+
+math is what you see
+everything is tied to all
+division is myth
+
+numbers make you up
+digital, not analog,
+means you never die
+
+ideas work, or don't.
+packets of information
+replicate, or don't.
+
+division seems real
+it is helpful in science
+arbitrary, though
+
+anchored to nature
+sensation is what you are
+bundle of feelings
+
+"woah", says the wise one
+"i see the body dissolve"
+"i'm a collection"
+
+a patterned table
+your hand, with pen, rests atop
+out come nature's thoughts
+
+change is bits flipping
+defocus; watch all at once
+be still and notice
+
+you see the objects,
+but they're making you up,
+so you're the seeing
+
+mind and body: one
+all science points to this truth
+nonduality
+
+you're not body
+you're cosmos, meaning all's you
+nothing is separate
+
+all of nature: mind
+your awareness makes up all
+math's not separate
+
+pain, death: illusion
+does it hurt? yes. no one there.
+you're a collection
+
+the flower, out there?
+no, all sensations are you,
+in you, to exist.
+
+you can't kill numbers
+abstract quantities: timeless
+universe: numbers
+
+lucy sits in tree
+contemplates life mystery
+"me: numbers: don't die"
+
+time: necessary
+without change there is no thought
+illusion persists
+
+i = numbers
+when i'm sleeping, nature sleeps
+calculations run
+
+look upon the world
+notice there's no separateness
+mythic division
+
+automatic thought
+demonstrates connectedness
+nothing besides you
+
+stop breathing and look
+watch automaticity
+there is only One
+
+nonduality
+mind and body: connected
+body-mind: nature
+
+nonduality
+all nature's sensations: you
+math is connected
+
+nonduality.
+simple. mind, body: one.
+nature is aware.
+
+nonduality
+when you think, nature's thinking
+strange, but this math's true
+
+you see things as far?
+what evidence do you have?
+you're those far things, too.
+
+you are everywhere
+you just don't sense it like that
+body, Nature: One
+
+poem moves the pen
+it squiggles for expression,
+wanting to be read
+
+self-less consciousness,
+awareness without judgment,
+transcends fear and doubt.
+
+you don't have to do.
+you are allowed to just be.
+be still and notice.
+
+you are awake space
+the body is within you
+body dies, but not space
+
+go even slower
+taste the moment's sensations
+feel you lack nothing
+
+mind seeking to grow
+awareness seeks awareness
+memes make awareness
+
+you are one with life.
+the sun is shining freely:
+life knows how to live.
+
+time is illusion
+suffering dissolves in Now
+no judgment in Now
+
+accept the What Is.
+don't give up, choose surrender.
+transcending tactic
+
+there is a way out
+the truth can be seen by you
+decouple from self
+
+if you remove self,
+the story dissolves, not you.
+sense of being lasts.
+
+you are eternal
+you aren't the body; you're more
+body is in you
+
+there's a bigger thing
+the body is in that space
+and it is awake
+
+the world doth turn 'round
+sometimes you see it as flat
+other times: yourself
+
+the bitter plant leaf,
+it can make your soul expand
+write, though: expand more
+
+truthfully exist
+when you change you are growing
+you can be sans self
+
+change from who you are
+accept what the moment holds
+suffering dissolves
+
+when in doubt, stop fear
+end the control-illusion
+be eternity
+
+stretching beyond time
+do you want to still the mind?
+forget the story
+
+transcending the mind,
+an arisen awareness,
+to all of nature.
 
 <hr>
 
@@ -580,6 +966,8 @@ there's only Growing
 world without judgment
 there is only the machine
 one cohesive whole
+
+<hr>
 
 ## [takeaways]
 
